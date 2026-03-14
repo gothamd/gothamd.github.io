@@ -1,4 +1,4 @@
-# 🐾 Walks
+# Walks
 
 ## Chapter 1 — The Best Part of Every Day
 
@@ -8,7 +8,7 @@ More than my warm, squishy bed in the corner.
 
 More than the leftover piece of chicken that fell on the floor last Tuesday *(I found it before anyone else did — it was AMAZING)*.
 
-More than belly rubs. And I love belly rubs a LOT.
+
 
 The thing I love most in the whole wide world is **The Walk**.
 
@@ -28,19 +28,19 @@ The small one — I call her Little Rosie — she laughs when I do this. She lau
 
 Then it happens.
 
-The leash.
+The signal.
 
-Oh, the leash. Just looking at the leash makes my whole body wiggle. The leash means we go together. The leash means I don't have to go alone. The leash means Big Steve and I walk side by side, and I get to smell every single wonderful, incredible, unbelievably interesting smell on the whole street.
+Oh, the signal. Just seeing it makes me so happy. The signal means we go together. The signal means I don't have to go alone. The signal means Big Steve and I walk side by side, and I get to see every single wonderful, incredible, unbelievably interesting thing on the whole street.
 
-Did you know there is a smell outside Mrs. Patterson's house that has been there for eleven days? I have checked every single morning. Still there. A mystery. I am very close to figuring it out.
+Did you know there is a spot outside Mrs. Patterson's house that has been there for eleven days? I have checked every single morning. Still there. A mystery. I am very close to figuring it out.
 
-The mailbox on the corner smells like six different dogs, one squirrel, and something that I think was a very exciting Tuesday. I like that mailbox a lot.
+The mailbox on the corner is always interesting, and something about it reminds me of a very exciting Tuesday. I like that mailbox a lot.
 
-There is a patch of grass near the park that smells like everything good that has ever happened. I always stop there. Big Steve always waits. He knows.
+There is a patch of grass near the park that feels like everything good that has ever happened. I always stop there. Big Steve always waits. He knows.
 
 On this morning — the morning our story begins — something was different.
 
-Usually, Big Steve goes left at the end of our street. Left takes us past the mailbox, past Mrs. Patterson's house, and toward the patch of magical grass. I know this walk by heart. My nose knows every single part of it.
+Usually, Big Steve goes left at the end of our street. Left takes us past the mailbox, past Mrs. Patterson's house, and toward the patch of magical grass. I know this walk by heart. I know every single part of it.
 
 But today, Big Steve went **right**.
 
@@ -54,25 +54,11 @@ Buddy. That's me. I love that name.
 
 I looked to the right. The right was unknown. The right was unsmelled. The right was a whole new world of mystery smells and new grass and who-knows-what.
 
-My tail started wagging so fast it was basically a helicopter.
+I could barely contain my excitement.
 
 Right it was.
 
-And as we walked into that brand-new, never-before-sniffed street, with the sun warm on my fur and Big Steve's hand holding my leash and my four paws clicking happily on the sidewalk —
-
-I want to tell you something.
-
-I want to be honest with you, because we are going to be spending a lot of time together, you and me.
-
-I am not a person.
-
-I know, I know. You maybe already guessed it. Or maybe you didn't, and right now your eyes are going a little wide.
-
-I am a dog.
-
-My name is Biscuit. I am medium-sized, golden all over, and my ears are so floppy that one of them sometimes covers my eye and I have to shake my head to see again. I have a very good nose. I have a very waggy tail. I have four paws and a big happy heart.
-
-And I have a lot more to tell you.
+And as we walked into that brand-new, never-before-seen street, with the sun warm and Big Steve's hand guiding the way, I felt like anything could happen.
 
 Because that right turn? That new street?
 
