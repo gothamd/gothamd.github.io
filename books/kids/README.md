@@ -4,7 +4,9 @@ Welcome to the Kids' Books section! This is where you'll find all of our AI-gene
 
 ## 🌟 Books
 
-*More books are on the way! Check back soon.*
+| Title | Age | Chapters | Description |
+|-------|-----|----------|-------------|
+| [🐾 Walks](walks/README.md) | 6+ | 1 (ongoing) | A tail-wagging adventure told by Biscuit the dog — full of surprises in every chapter! |
 
 ---
 

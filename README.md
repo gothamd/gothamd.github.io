@@ -18,7 +18,7 @@ Fun, imaginative stories crafted for young readers. New titles are added regular
 
 | Title | Description |
 |-------|-------------|
-| *(coming soon)* | AI-generated adventures, fairy tales, and more for kids of all ages |
+| [🐾 Walks](books/kids/walks/README.md) | A tail-wagging adventure told by Biscuit the dog — full of surprises in every chapter! |
 
 ➡️ **[Browse all Kids' Books →](books/kids/README.md)**
 
