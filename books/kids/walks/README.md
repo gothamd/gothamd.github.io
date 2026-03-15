@@ -7,6 +7,7 @@
 ## Chapters
 
 - [Chapter 1 — The Best Part of Every Day](chapter-01.md)
+- [Chapter 2 — The Big Reveal](chapter-02.md)
 
 ---
 
