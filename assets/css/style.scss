@@ -1,0 +1,21 @@
+---
+---
+
+@import "{{ site.theme }}";
+
+html {
+  font-size: 100%;
+}
+
+body {
+  font-size: 1rem;
+  line-height: 1.6;
+}
+
+h1 { font-size: 2rem; }
+h2 { font-size: 1.5rem; }
+h3 { font-size: 1.25rem; }
+
+p, li {
+  font-size: 1rem;
+}
