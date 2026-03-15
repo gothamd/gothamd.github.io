@@ -1,44 +1,44 @@
 # Walks
 
-## Chapter 2 — The Big Reveal
+## Chapter 2 — Wait… Who Am I?
 
-By now, I bet you're wondering.
+By now, I bet you are thinking:
 
-You've been reading along — all that spinning, all that sniffing, all that wild heart-thumping joy just because someone put on their *shoes* — and somewhere in the back of your mind, a little question has been growing.
+*Hmm. Who IS this? Who is telling me this story?*
 
-*Who IS this narrator, exactly?*
+It is a very good question! Almost as good as the question of what that spot outside Mrs. Patterson's house smells like. (I am still working on that one.)
 
-I can feel your curiosity. It is very big. Almost as big as mine when I found that spot outside Mrs. Patterson's house.
+OK. I think it is time.
 
-Well. I think it is time.
+I am going to tell you who I am.
 
-I will tell you who I am.
-
-But I'm going to do it the right way.
+But I want to do it in a fun way.
 
 ---
 
-It was the morning after the big right turn. Big Steve and I had come back from the new street, and I was still buzzing with the memory of all those incredible, never-before-smelled things. My paws were tired. My heart was full. I trotted over to the hallway — that narrow bit between the kitchen and the front door, where the long mirror lives.
+The morning after the big right turn, Big Steve and I came home from the new street. My legs were tired. My heart was SO happy. I walked into the hallway — the little bit between the kitchen and the front door — and I saw it.
 
-I don't always look at mirrors. They can be confusing. But today, I stopped.
+The big mirror on the wall.
+
+I do not always look at the mirror. Sometimes it is confusing. But today, I stopped.
 
 I looked.
 
-And there, staring back at me...
+And there, looking right back at me...
 
 ...were *two pointy ears*.
 
-Tall. Alert. Perfectly triangular. Swivelling ever so slightly, the way they do when something interesting is happening three streets away.
+Up. Tall. Pointy. Moving a tiny bit, the way they do when something fun is happening far away.
 
-I leaned in closer.
+I looked closer.
 
-A *pointy nose* — dark and damp at the very tip, glistening like a little snot-jewel in the morning light.
+A *pointy nose* — dark and wet at the tip, with a little bit of snot right on the end.
 
-(I know. Very glamorous. I didn't choose it. But it is *excellent* for detecting bacon from two floors up, so I have made peace with it.)
+(I know. I know. But that nose is SO good at smelling bacon from very, very far away. I love my nose.)
 
-I leaned in even closer.
+I looked even closer.
 
-And then — because I simply could not help it, because the morning had been wonderful and the new street had been wonderful and everything was wonderful — my whole back end started to move.
+And then — because I just could not stop it, because the morning was so good and the new street was so good and everything was so good — my whole back end started to go.
 
 The tail.
 
@@ -46,33 +46,33 @@ Oh, the *tail*.
 
 Wagging. And wagging. And *wagging*.
 
-Back and forth, back and forth, completely beyond my control, like a furry little flag announcing to the whole world: *YES. GOOD. THIS. MORE OF THIS PLEASE.*
+Back and forth, back and forth, like a happy little flag saying to the whole world: *YES. GOOD. THIS. MORE OF THIS PLEASE.*
 
-I stared at that reflection for a long moment.
+I looked at myself in the mirror for a long moment.
 
 Two pointy ears. ✓
 
-One pointy, gloriously snotty nose. ✓
+One pointy, snotty nose. ✓
 
-A tail that wags without permission. ✓
+A tail that will not stop wagging. ✓
 
-And that is when it hit me — though I suspect it may have already hit *you*, clever reader.
+And then I knew. And maybe... you already know too?
 
 **I am a dog.**
 
-A very good dog, if anyone is asking.
+A very good dog.
 
-(Big Steve says so every single day. "Good boy." The two best words in any language. I have checked.)
+(Big Steve says so every single day. "Good boy." Those are the best two words ever. I have checked.)
 
-So now you know. The one who loves The Walk more than anything. The one who spins three — sometimes four — times in the hallway. The one who investigated the spot outside Mrs. Patterson's house for eleven consecutive mornings.
+So now you know! I am the one who loves The Walk more than anything. I am the one who spins around in the hallway. I am the one who has been checking that spot outside Mrs. Patterson's house every single day for eleven days.
 
 That is me.
 
 And the new street?
 
-The one we turned right onto yesterday, with all its uncharted smells and unknown wonders?
+The one we walked down yesterday, with all its new smells and new things to see?
 
-Something happened there. Something I did not expect.
+Something happened there. Something I did not see coming.
 
 *Someone was waiting.*
 
