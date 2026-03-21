@@ -80,4 +80,4 @@ Something happened there. Something I did not see coming.
 
 ---
 
-[← Chapter 1](chapter-01.md) | [Back to Table of Contents](README.md)
+[← Chapter 1](chapter-01.md) | [Back to Table of Contents](README.md) | [Chapter 3 →](chapter-03.md)
