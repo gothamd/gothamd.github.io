@@ -7,7 +7,8 @@
 ## 📑 Table of Contents
 
 - [👶 Kids' Books](#-kids-books)
-- [📬 Contributing](#-contributing)
+- [� Reddit Tech Interview Trends](#-reddit-tech-interview-trends)
+- [�📬 Contributing](#-contributing)
 - [📄 License](#-license)
 
 ---
@@ -21,6 +22,14 @@ Fun, imaginative stories crafted for young readers. New titles are added regular
 | [🐾 Walks](books/kids/walks/README.md) | A tail-wagging adventure told by Biscuit the dog — full of surprises in every chapter! |
 
 ➡️ **[Browse all Kids' Books →](books/kids/README.md)**
+
+---
+
+## 📰 Reddit Tech Interview Trends
+
+Daily summaries of the latest Reddit discussions on senior tech interviews — Anthropic/OpenAI, FAANG EM/Principal/Staff, and LLM/AI interview questions.
+
+➡️ **[Browse all daily reports →](reports/index.md)**
 
 ---
 
