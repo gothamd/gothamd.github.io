@@ -12,3 +12,4 @@ Daily summaries of the latest Reddit discussions on tech interviews, focusing on
 ## Reports
 
 - [May 11, 2026 – Reddit Tech Interview Trends](./reddit-tech-interview-trends-summary-2026-05-11)
+- [January 1, 2026 – Reddit Tech Interview Trends](./reddit-tech-interview-trends-summary-2026-01-01)
